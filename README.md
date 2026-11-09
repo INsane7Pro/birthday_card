@@ -1,1 +1,1 @@
-A Special Birthday Wishing Card.
+A Special Birthday Wishing Card for your girlfriends
